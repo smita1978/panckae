@@ -1,0 +1,4 @@
+suji
+vegies
+soda
+curd
